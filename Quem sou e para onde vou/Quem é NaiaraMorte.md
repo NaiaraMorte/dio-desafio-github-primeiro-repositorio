@@ -1,6 +1,6 @@
 ###### *quem sou*
 
-Mas especificadamente meu nome é Naiara Lindolfo da Boa Morte, tenho 29 anos, sou natural de Limeira do Oeste, casada e com dois filhos pets :dog: . 
+Na verdade meu nome completo é Naiara Lindolfo da Boa Morte, tenho 29 anos, sou natural de Limeira do Oeste, casada e com dois filhos pets :dog: . 
 Apaixonada por Designer de Interior e Arquitetura. Desde pequena sempre construía e montava ambientes e decorava enquanto brincava de casinha.
 Tive uma infância simples e muito rica em detalhes, fui criada pela minha mãe, avós e tios, e apesar de cada um deles ter um papel diferente na minha vida todos me ensinaram a valorizar as pequenas coisas e a entender que para conquistar os objetivos é preciso muito trabalho duro pois nada vem facilmente, a boa educação e a honestidade nos tornam pessoas melhores.
 
